@@ -1,1 +1,1 @@
-# Repositorio_tic
+Creación, reutilización y difusión de contenidos
